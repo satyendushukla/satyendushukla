@@ -9,8 +9,7 @@
 
 - 📫 How to reach me **shuklasatyendu1538@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1ru-9lDZKhnlfMmkoIVTshOOMlaqfaza5X9Oi3UFHKAE/edit?usp=sharing](https://docs.google.com/document/d/1ru-9lDZKhnlfMmkoIVTshOOMlaqfaza5X9Oi3UFHKAE/edit?usp=sharing)
-
+- 📄 Know about my experiences https://drive.google.com/file/d/1FDn_rz_exkyY_-8B0Z1UWIlE9XCxAkSu/view?usp=sharing
 - ⚡ Fun fact **I am serious**
 
 <h3 align="left">Connect with me:</h3>
